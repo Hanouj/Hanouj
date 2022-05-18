@@ -6,5 +6,5 @@
 - 💬 Ask me about anything
 - 📫 You can reach me here:|hannaremy@outlook.com| [linkedin](https://www.linkedin.com/in/hanna-hussein-135580238/)|
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like to spend time on nature, and my cat is my bestfriend
+- ⚡ Fun fact: I like to spend time in nature, and my cat is my bestfriend
 
